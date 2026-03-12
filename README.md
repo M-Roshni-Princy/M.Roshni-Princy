@@ -16,7 +16,8 @@ Frontend Developer | MERN Stack Developer |   🇮🇳 India
 
 💬 Ask me about: Collaboration, Tech Support
 
-📫 How to reach me: navintiwaricollege@gmail.com
+📫 How to reach me: roshni1305princy@gmail.com
+
 
 😄 Pronouns: M.Roshni-Princy
 
